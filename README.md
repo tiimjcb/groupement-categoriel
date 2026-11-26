@@ -1,0 +1,1 @@
+# groupement-categoriel
